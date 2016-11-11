@@ -1,2 +1,3 @@
-# hello_world
-This is starting with Github
+# hello storecheq.com
+Give a gift of choice
+Gift card recipients can choose from large selection of products offered by leading brands as they wish....
